@@ -1,4 +1,6 @@
 # ICO 與加密初創公司的傳統融資
+
+> https://alejandrocremades.com/icos-vs-traditional-financings-for-crypto-startups/
  
 你對 ICO 與加密初創公司的傳統融資了解多少？
 
